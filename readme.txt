@@ -1,1 +1,1 @@
-simple and easy
+simple & easy
